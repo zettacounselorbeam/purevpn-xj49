@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with top App for PureVPN - IKEv2-support and 24/7-support, the #1 app. Includes IKEv2-support and 24/7-support for a safer and more private online
 
 
 
